@@ -1,4 +1,4 @@
-# 
+# Último dex arbitrage bot extensiones para Mac OS | Profesional dex arbitrage bot extensiones para PC Windows. Con detección de liquidación y gestión de riesgos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
